@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JeremyW057
 - 👀 I’m interested in gaming.
-- 🌱 I’m currently learning computer science at UCR.
+- 🌱 I’m a Computer Science graduate.
 - 💞️ I’m looking to collaborate on anything really.
 - 📫 How to reach me,.here.
 
